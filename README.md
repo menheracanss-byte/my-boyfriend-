@@ -1,2 +1,4 @@
 # my-boyfriend-
-Haiii sayaaaangkuuu 💞💞 happpy birthday sayaaaangkuuuu cintaaaakuuu manissskuuuu🎀, semogaaa panjangg umuuur sehatt selaluu semoga yang di inginkan cepat tercapai ssm
+Haiii sayaaaangkuuu 💞💞 happpy birthday sayaaaangkuuuu cintaaaakuuu manissskuuuu🎀, semogaaa panjangg umuuur sehatt selaluu semoga yang di inginkan cepat tercapai yaaaa sayaaaaaang terinakasiii sudahhh bertahan sejauh iniii, melewati rintangan-rintangan hidup yang tidak mudah inii, sayaaaanggg hebattt sekaliiii bisaaa bertahannn sejauh iniiiii, happpy birthday sayaaaangkuuuu wish u all the best sayaaaaaangkuuuu🎀🎀🎀🎀🎉🎉🎉🥳😍💗
+sayaaaang jangann lupa ucap terimakasih ke diri sendiri yaaaa sayaaaaaang karenaa sudahhh bertahan sejauh inii, sudaa mauu berubah menjadi lebih baik dan tidak menyerah atas semua masalah yang dataaang, dedek ucapin terimakasih jugaaa sayaaaaang sudaaa bertahann sejauhh iniii samaa dedekkk sayaaaaangg, sudaaa sabarr, sudaaa sayaaaaangg, Terimakasiii yaaaaaa sayaaaaanggg 
+LOVEEYOUU MOREEE SAYAAAAAMGG 💗💗💗💗💗💋💋💋🎀💞💞
